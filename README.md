@@ -1,1 +1,3 @@
 # The-mobile-game
+
+in this game you are a man that got stuck in your own mobile you are now a stick man your goal enter all apps to get your freedom every app is 2 or 3 levels and beware from popups and adds they can be scammers or hackers that can steal parts from your machine that will get you out from your mobile every app has antivirus and sometimes coins that can make you buy things to help you in other levels and you can enter websites for coins and you can choose an app to be your home to decorate it defense it and the game has more that 250 apps all good with thier own mechaineces and with high textured 2d everywere
